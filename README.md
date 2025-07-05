@@ -4,10 +4,7 @@
 
 🌱 I’m currently learning Product Design, Front-End e automações nervosas com Python.
 
-💞️ I’m looking to collaborate on projetos sérios, que querem deixar marca — nada de ideia meia-boca.
-
-📫 How to reach me: chama no LinkedIn ou no e-mail[  wanderson@example.com](https://www.linkedin.com/in/wanderson-silva-803891292/) (troca pro teu real, óbvio).
-Fwsmiranda@gmail.com
+📫 How to reach me: chama no LinkedIn ou no e-mail: fwwsmiranda@gmail.com (https://www.linkedin.com/in/wanderson-silva-803891292/).
 
 😄 Pronouns: ele/dele.
 
